@@ -1,4 +1,4 @@
-Lasciatemi cantare
+Lasciatemi cantare LALALALALALALALALALAAAA
 Con la chitarra in mano
 Lasciatemi cantare
 Sono un italiano
